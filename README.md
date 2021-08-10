@@ -1,1 +1,0 @@
-# iedereen-mag-de-straat-op-om-afgeknalt-te-worden
